@@ -1,6 +1,6 @@
 # 🎬 Portfólio de Edição de Vídeo — Nicolas Marinho
 
-Olá! Me chamo **Nicolas Marinho**, tenho **16 anos** e sou um **editor de vídeo profissional** com foco em **conteúdo para influenciadores digitais**.
+Olá! Me chamo **Nicolas Marinho**, tenho **17 anos** e sou um **editor de vídeo profissional** com foco em **conteúdo para influenciadores digitais**.
 
 Atuo na criação de vídeos criativos, envolventes e otimizados para plataformas como **YouTube, Instagram, TikTok e Shorts**, sempre buscando entregar **resultados de impacto visual** e com **boa retenção de público**.
 
